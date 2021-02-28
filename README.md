@@ -1,2 +1,0 @@
-# [|× ×|]'''' BLOCKKER TECHNOLOGY 📡
-_
